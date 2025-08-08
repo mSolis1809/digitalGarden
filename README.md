@@ -1,1 +1,1 @@
-# digitalGarden
+# digitalGarden 🌱
